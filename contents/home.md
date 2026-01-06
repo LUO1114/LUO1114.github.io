@@ -1,9 +1,6 @@
 
-**XX University**, Exchange student <br>  
-• As a XX, represented my college as an outstanding student for a XX exchange program.  
+**Jinan University**
 
-**XX University**, Honours Bachelor of XX (XX – XX)  
-• GPA: XX/XX (top XX%)  
+**Zhejiang University**
 
-#### Research Interests  
-XX, XX, XX, XX.
+
